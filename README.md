@@ -1,13 +1,8 @@
 ## EducateOne
 
-![image](https://drive.google.com/folderview?id=1bqN9ZD5_AA8Gm9dgZ5uzqJJmLKcLiFMD)
+![image](https://educateone.weebly.com/uploads/1/3/0/1/130189867/poster-a3-v5_orig.jpg)
 
-
-💻 Online Classes
-
-🥇 IITian Teachers
-
-🔒 Safe and Secure
+💻 Online Classes | 🥇 IITian Teachers | 🔒 Safe and Secure
 
 Tags: 
 Online Tuitions for Class 10, Online tutor, Class 10, Class X, CBSE, Class 8, Class 9, Class 12.
