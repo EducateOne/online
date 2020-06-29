@@ -1,4 +1,5 @@
 ## EducateOne
+### Online Tutions
 
 ![image](https://educateone.weebly.com/uploads/1/3/0/1/130189867/poster-a3-v5_orig.jpg)
 
